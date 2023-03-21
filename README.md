@@ -1,2 +1,2 @@
 # atividade
-Atividade em dupla, Erika e Lucas
+Atividade em dupla, Erika e 
